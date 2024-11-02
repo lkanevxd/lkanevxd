@@ -1,4 +1,4 @@
-### wassup, im keeqty ☮
+### wassup ☮
 
-- currently learning python and golang (🔙🔚)
-- doin some pet projects, but they're bullshit yet xD
+https://github.com/user-attachments/assets/d283a426-9833-4f87-97be-412a84911769
+

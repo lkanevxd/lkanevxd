@@ -1,1 +1,1 @@
-# scio me nihil scire
+scio me nihil scire

@@ -1,2 +1,1 @@
-# peace ☮
-
+# scio me nihil scire
